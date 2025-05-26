@@ -1,4 +1,4 @@
-### Annanas1k 😴💻
+### Annanas1k 🧙‍♂️
 ---
 I'd be a great programmer... if only laziness wasn't so much stronger.
 ---
