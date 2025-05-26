@@ -1,11 +1,7 @@
 ### Annanas1k 😴💻
 
 ---
-
-### About Me
-
 I'd be a great programmer... if only laziness wasn't so much stronger.
-
 ---
 
 ### Currently Exploring
