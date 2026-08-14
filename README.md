@@ -1,7 +1,6 @@
 # Hi there, I'm Radu (Annanas1k) 🧙‍♂️
 
 > *"I'd be a great programmer... if only laziness wasn't so much stronger."*  
-> *(So I just automate everything to code less).*
 
 ---
 
